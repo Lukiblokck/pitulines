@@ -3,4 +3,4 @@
 - 🔫 Buckshot Roulette: https://buckshotroulette.online/game/
 - Bukcshot Roulette Steam Version 1.2.0: https://buckshotroulette.online/steam/
 - Google: https://google.com
-- [I'dont finish]
+- [I don't finish it yet]
